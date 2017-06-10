@@ -1,2 +1,2 @@
 # hello-world
-to initiate this account
+kayanne is a librarian and a troublemaker learning how to code.
